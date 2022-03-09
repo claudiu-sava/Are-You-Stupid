@@ -1,1 +1,1 @@
-# Are-You-Stupid
+# Are You Stupid?
